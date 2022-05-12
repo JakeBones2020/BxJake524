@@ -6,7 +6,7 @@
 
 ## Glad to see you here! &nbsp; ![](https://komarev.com/ghpvc/?username=JakeBones2020&label=Views&color=blue&style=plastic)
 
-
+<img align="right" height="215" width="325" alt="" src="https://media.discordapp.net/attachments/829936503794040863/973738811819438111/BxJake524_-_Mascot_Transparent.png?width=517&height=517" />
 
 ## Some Highlights:
 
